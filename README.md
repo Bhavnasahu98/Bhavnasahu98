@@ -7,9 +7,9 @@
 
 - 💬 Ask me about **artificial Intelligence & Machine learning Algorithms**
 
-- 📫 How to reach me **bhavnasahu2808@gmail.com**
+- 📫 reach me at **bhavnasahu2808@gmail.com**
 
-- ⚡ Fun fact **🍔Foodie 🎵 Music keeps me focused—especially lo-fi and guitar tunes**
+- ⚡**🍔Foodie 🎵 Music keeps me focused—especially lo-fi and guitar tunes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
